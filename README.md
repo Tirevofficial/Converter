@@ -13,4 +13,5 @@ Made by Tirev =￣ω￣=
 
 
 
-   Please Do not copy your copy send your friends the link but please do not copy it
+   Please Do not send your copy to your friends, instead send the link
+   Thank you for understanding
