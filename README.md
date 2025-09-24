@@ -8,3 +8,9 @@ Made by Tirev =￣ω￣=
         5. If your file has a wrong extension, use the renamer tool above to fix it. (but press the reset button to continue)
         6. Enjoy your converted image!
         PS. Don't worry you won't have any virus downloaded on it and by the way we are adding more and more missnamed extensions
+
+
+
+
+
+   Please Do not copy your copy send your friends the link but please do not copy it
